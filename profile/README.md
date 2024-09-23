@@ -2,9 +2,7 @@
 
 Brawl Stars Unblocked is available over here. Enjoy. You can start playing by go through the instruction below. It is free. No restriction at all.
 
-## [Click here to play Brawl Stars Unblocked](https://marllabas.com)
-
-## [Click here to use Brawl Stars Hack](https://marllabas.com)
+## [Click here to play Brawl Stars Unblocked](https://naremo.com)
 
 Brawl Stars is an incredibly popular mobile game developed by Supercell, offering players a unique blend of fast-paced combat, teamwork, and strategic gameplay. With its wide range of game modes, characters (known as Brawlers), and frequent updates, it’s no surprise that millions of players are hooked on this action-packed multiplayer experience. However, like many games, Brawl Stars can be blocked on certain networks, such as at schools, workplaces, or in countries with restricted internet access. 
 
